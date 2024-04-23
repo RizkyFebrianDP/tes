@@ -1,2 +1,2 @@
 # tes
-tes aja
+tes aja dan bukan asss
